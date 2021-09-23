@@ -7,7 +7,7 @@ I am always happy to help others, and will not hesitate to invest my personal ti
 and effort into being everyone's go-to. 
 Hard work, resilience, reliability and determination are key aspects in defining who I am!
 
-- 🌱 I’m currently learning a bit of everything!
-- 💬 Ask me about whatever, I will try my best to help!
+- :ear_of_rice: I’m currently learning a bit of everything! 😊
+- :grey_question: Ask me about whatever, and I will try my best to help!
 - ⚡ Fun fact: Some Jellyfish are immortal
 
