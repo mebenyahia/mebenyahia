@@ -1,7 +1,7 @@
 # Hi there, I'm Meryem! 👋
 ### I'm a ✨ Computer Science Graduate ✨
 
-Problem-solving truly does call to all my passions   (◜▿◝)
+Problem-solving truly does call to all my passions
 
 I am always happy to help others, and will not hesitate to invest my personal time 
 and effort into being everyone's go-to. 
