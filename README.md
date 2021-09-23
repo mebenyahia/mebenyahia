@@ -8,5 +8,5 @@ and effort into being everyone's go-to.
 Hard work, resilience, reliability and determination are key aspects in defining who I am!
 
 - :ear_of_rice: I’m currently learning a bit of everything! 😊
-- ⚡ Fun fact: Some Jellyfish are immortal
+- ⚡ Fun fact: Some Jellyfish are immortal.
 
