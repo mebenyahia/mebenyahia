@@ -1,3 +1,3 @@
-# Hi there, I'm Meryem! 👋
-### ✨ Welcome to my github ✨
+# Hi there, I'm Meryem!
+### ✨ Welcome ✨
 
